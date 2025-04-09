@@ -4,7 +4,7 @@
 </div>
 <br>
 
-![](https://i.imgur.com/irz4E09.png)
+![](https://i.imgur.com/DWfSoIz.png)
 blurred because I'm [paranoid](https://www.youtube.com/watch?v=_nkK3GHbBwY/) ( ꩜ ᯅ ꩜;)⁭⁭ᶻ 𝗓 𐰁.ᐟ
 <p align="center">Uploading it to GitHub in case I lost the original file from my PC and also if someone likes it</p>
 
